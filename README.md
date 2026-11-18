@@ -35,10 +35,10 @@ Goals
 
 Contact
 
-- 📧 Email: "shakyaharshit40029021@gmail.com" (mailto:shakyaharshit40029021@gmail.com)
+- 📧 Email: shakyaharshit40029021@gmail.com
 - 💼 LinkedIn: "Harshit Shakya" (https://www.linkedin.com/in/harshit-shakya-ab4002380/)
-- 🐙 GitHub: "Harshit6Shakya" (https://github.com/Harshit6Shakya)
+
 
 ---
 
-⭐ Thanks for visiting my profile!
+Thanks for visiting my profile
